@@ -1,4 +1,4 @@
-# Atlantic
+# Oceanicinteriors
 
 Warm, livable interior design for homes that feel like you.
 
